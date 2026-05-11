@@ -1,1 +1,1 @@
-# sritesh1104-swipeycasestudy-sritesh
+# swipeycasestudy-sritesh
